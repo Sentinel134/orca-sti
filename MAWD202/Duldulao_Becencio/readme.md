@@ -1,4 +1,7 @@
 # About me
-Becencio Senoto Duldulao
 
-future Software Developer! 
+Eyooo Watsup Mate!
+
+Im a Becencio Senoto-Duldulao,
+
+you can call me Bic.. your Junior Front-End Website Developer
